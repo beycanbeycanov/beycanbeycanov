@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @beycanbeycanov
+👋 Hi, I’m @beycanbeycanov
